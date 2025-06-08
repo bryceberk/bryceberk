@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 ✌️ Recent CS Graduate from the University of Rochester <br>
+🧠 New GitHub profile for post grad projects <br>
 🥶 Feel free to connect on any listed socials! <br>
 
 
