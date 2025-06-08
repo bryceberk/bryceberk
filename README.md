@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 ✌️ Recent CS Graduate from the University of Rochester <br>
-🥶 Connect with me on LinkedIn [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/bryce-berkhof) <br>
+🥶 Feel free to connect on any listed socials! <br>
 
 
 ## 🌐 Socials:
